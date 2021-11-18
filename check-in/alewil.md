@@ -7,4 +7,4 @@ alwil
 
 
 ## Dislikes
-* honey
+* honey and fennel 
